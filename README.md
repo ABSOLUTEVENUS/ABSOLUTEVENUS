@@ -1,4 +1,2 @@
-<img width="1280" height="1280" alt="Untitled39_20250811141100" src="https://github.com/user-attachments/assets/fbfd50b2-6715-48b6-9958-9cfc82e778c8" />
-                                         BYI : i am socially awkward and tend to not speak as much,feel free to interact with me though! i promise i wont bite, i am a passive aggressive person who is mostly dry most times, dont take it to heart. i block/hide freely any1 who i dont have a good feeling about. cuddles are good with me!! unless stated otherwise in my name.
-                                      <img width="500" height="122" alt="IMG_1812" src="https://github.com/user-attachments/assets/fd0d79b0-5c93-4f30-8a29-753e1dd49d80" />
-                                         ⚠️ WIP ⚠️
+![image](https://github.com/user-attachments/assets/eff4d81b-e7d9-4611-8f7d-cb444d15c0ff)
+multifandoming it<img width="40" height="50" alt="image" src="https://github.com/user-attachments/assets/5f049bb6-6b47-4cb6-86b9-411dfa31c804" />

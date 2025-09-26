@@ -17,8 +17,8 @@
            Sam sillydrone
            Star
            Colfy
+           Cass
            Salty
            Akira
            Spookiez
-           Cass/Xlee
 ![image](https://github.com/user-attachments/assets/7d334842-e879-460b-887b-817af65e6d13)

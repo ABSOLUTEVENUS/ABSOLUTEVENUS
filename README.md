@@ -9,9 +9,9 @@
    
           friends !! >⩊<
            Evan
+           Jupiter
            Ollie
            Min
-           Jupiter
            Ian
            Droid
            Sam

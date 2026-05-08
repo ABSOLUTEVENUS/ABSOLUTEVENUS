@@ -8,18 +8,16 @@
    DNI & INT on my strawpage(im lazy)<img width="100" height="110" alt="image" src="https://github.com/user-attachments/assets/43338bb2-9dbd-4669-91f5-e6c0acd58f74"/>
    
           friends !! >⩊<
-           Evan
            Jupiter
+           Evan
            Ollie
            Min
            Ian
            Droid
            Sam
-           Sam sillydrone
+           sillydrone
            Star
            Colfy
-           Cass
            Salty
-           Akira
            Spookiez
 ![image](https://github.com/user-attachments/assets/7d334842-e879-460b-887b-817af65e6d13)

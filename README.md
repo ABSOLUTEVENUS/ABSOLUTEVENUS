@@ -5,7 +5,7 @@
 
    Multifandom and a #fictkin ok..i kin Sua + Till from alien stage and V from murder drones, i am also a blunt/passive-aggressive person sometimes, i make kms/kys jokes rarely and reclaim the f slur around my oomfs that are comfy with it, i also block/hide freely of those i have bad feelings about
 
-   DNI & INT on my strawpage(im lazy)<img width="100" height="110" alt="image" src="https://github.com/user-attachments/assets/43338bb2-9dbd-4669-91f5-e6c0acd58f74"/>
+   DNI & INT on my strawpage(im lazy)<img width="110" height="110" alt="image" src="https://github.com/user-attachments/assets/43338bb2-9dbd-4669-91f5-e6c0acd58f74"/>
    
           friends !! >⩊<
            Jupiter

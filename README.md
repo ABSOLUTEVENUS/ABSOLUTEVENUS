@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/eff4d81b-e7d9-4611-8f7d-cb444d15c0ff)existing sua kin<img width="40" height="50" alt="image" src="https://github.com/user-attachments/assets/5f049bb6-6b47-4cb6-86b9-411dfa31c804"/>
+![image](https://github.com/user-attachments/assets/eff4d81b-e7d9-4611-8f7d-cb444d15c0ff)existing sua kin<img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/5f049bb6-6b47-4cb6-86b9-411dfa31c804"/>
 
           abt me / byi •⩊•
    hii u can call me venus or thad!. im genderfluid so idm any pronouns usually, c+h FRIENDLY!! unless stated otherwise in my name, dont be afraid to int! Im welcoming of new oomfies guys
